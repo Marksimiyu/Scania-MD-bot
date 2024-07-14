@@ -47,7 +47,7 @@
 
 ## Support 🧧 🧧 🧧 🧧
 ## Join my channel for updates
-<a href="https://whatsapp.com/channel/0029VaZuGSxEawdxZK9CzM0Y" target="_blank">
+<a href="Follow the FORD RANGER AI channel on WhatsApp: https://whatsapp.com/channel/0029Vaj5lGwIt5rtoOEHoV1b" target="_blank">
     <img alt="whatsapp Group" src="https://img.shields.io/badge/ Whatsapp Support Channel -25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
   </a>
 </p>
