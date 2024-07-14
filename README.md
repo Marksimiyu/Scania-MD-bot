@@ -1,6 +1,6 @@
 <p align="center">  
   <a href="https://whatsapp.com/channel/0029VaZuGSxEawdxZK9CzM0Y">
-    <img alt="wasi" height="300" src="https://telegra.ph/file/679935f170955bdf769af.jpg">
+    https://gist.github.com/jimmieego/ce235126a487d17c5845223584aab60a?permalink_comment_id=4827005#gistcomment-4827005 src="https://telegra.ph/file/679935f170955bdf769af.jpg">
     <h1 align="center">BMW MD BEST WABOT</h1>
   </a>
 </p>
